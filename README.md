@@ -33,7 +33,3 @@ Atualmente estou em formação na [Escola DNC](https://www.escoladnc.com.br/) e 
 
 ---
 
-### 📬 Vamos conversar?
-
-Me chama no [LinkedIn](https://www.linkedin.com/in/raquelandreotti/) ou envie um e-mail: **raquelandreotti@gmail.com**  
-Será um prazer trocar ideias com você 🚀
